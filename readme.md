@@ -1,1 +1,1 @@
-## Big thanks to John Smilga
+## Big thanks to John Smilga.
